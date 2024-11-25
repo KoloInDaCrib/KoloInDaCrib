@@ -9,3 +9,4 @@
 * I am Asexual!!! If you ever see someone w/ my name engaging in intercourse it ain't me I'on like that kinda stuff!!!
 * Gonna draw my sona eventually give me a decade
 * My programming setup consists of a computer that's older than me and a dream
+* My discord is "koloindacrib" if you wanna talk or whatevs lmao
