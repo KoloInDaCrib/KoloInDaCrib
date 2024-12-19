@@ -1,6 +1,3 @@
-# a thing i am proud of
-![kolomeless](https://github.com/user-attachments/assets/3d431374-4bac-4717-9dbd-f61187cbb393)
-
 # raw quote that i thought of one morning
 "Wearing a mask with a ludicrous smile"
 "If I'm going down better do it in style"
