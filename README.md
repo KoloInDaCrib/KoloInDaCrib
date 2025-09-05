@@ -1,8 +1,4 @@
-# raw quote that i thought of one morning
-"Wearing a mask with a ludicrous smile"
-"If I'm going down better do it in style"
-
-# sum other stuff
+# Me stuff
 * I do haxeflixel thingies! Mainly funkin but occassionally I start up a random ass project that I never finish like a drawing software named FlxDraw yeah that stuff rocks but I never finished it lol!
 * I tell myself that I like a lot of games but the aforementioned "lot" is like 5
 * hop on Just Shapes and Beats
